@@ -1,4 +1,4 @@
-#  
+#  3008 Script exclusive offers the most advanced 3008 Script, with unlimited stamina and private server access. Perfect for dominating any match.
 
 
 
